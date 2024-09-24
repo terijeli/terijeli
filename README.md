@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Tereza Jelinkova
+- 👀 I’m currently learning how to code properly (and as a pro haha)
+- 📫 Email: jelinkovatereza36@gmail.com
